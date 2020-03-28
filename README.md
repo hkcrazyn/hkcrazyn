@@ -1,0 +1,2 @@
+# hkcrazyn
+yazılıma dair herşey
